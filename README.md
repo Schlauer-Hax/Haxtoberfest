@@ -5,4 +5,5 @@ To get my super cool tshirt
 This is the last sentence in this repo lul.
 
 
-Hello I'm LostWald
+Hello I'm LostWald.
+I'm A Friend of Hax and i want that tshirt too
