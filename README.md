@@ -10,4 +10,4 @@ I'm A Friend of Hax and i want that tshirt too. I like the tshirt because it has
 
 
 Meddl Leude
-I'm not Drachenlord. 
+I'm not Drachenlord. I'm so much cooler than the Drache.
