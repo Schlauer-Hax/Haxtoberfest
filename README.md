@@ -8,4 +8,4 @@ This is the last sentence in this repo lul.
 Hello I'm LostWald.
 I'm A Friend of Hax and i want that tshirt too. I like the tshirt because it has a very cool look. After a few Moments of explaining i understood Github.
 
-Hello, this is hax from 2020.
+Hello, this is hax from 2020. Now i hav ipad.
