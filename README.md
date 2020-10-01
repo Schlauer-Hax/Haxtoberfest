@@ -11,3 +11,4 @@ I'm A Friend of Hax and i want that tshirt too. I like the tshirt because it has
 Jo Fuck Wie was wer 2020 hä wie wieso weshalb warum wer nicht fragt bleibt dumm
 
 Have you heard of Twitch Prime?
+Just kidding!
