@@ -12,3 +12,4 @@ Jo Fuck Wie was wer 2020 hä wie wieso weshalb warum wer nicht fragt bleibt dumm
 
 Have you heard of Twitch Prime?
 Just kidding!
+I know it's called Prime Gaming now
