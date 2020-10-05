@@ -17,3 +17,5 @@ SO SUB TO ME ON TWITCH!
 
 Jo follow me on youtube: Lostwald
 J`aime Nutella.
+I´m a Rainbow Six Proplayer lolol hahah xD
+
