@@ -14,3 +14,5 @@ Have you heard of Twitch Prime?
 Just kidding!
 I know it's called Prime Gaming now
 SO SUB TO ME ON TWITCH!
+
+Jo follow me on youtube: Lostwald
