@@ -20,4 +20,5 @@ J`aime Nutella.
 I´m a Rainbow Six Proplayer lolol hahah xD
 I got the T-shirt last time to and i liked it.
 So this time i want it again.
+Crazy everything is crazy-CEO of everything
 
